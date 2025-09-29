@@ -6,7 +6,7 @@
  </br>
 ᥴᥲkᥱ . һᥱ / sһᥱ 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[r](https://rentry.co/slutmachine)ᥱᥒ𝗍rᥡ
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[r](https://rentry.co/masturb8)ᥱᥒ𝗍rᥡ
 </p>
 <p align="center">
 <img width="513" height="341" alt="image" align="center" src="https://i.postimg.cc/nrgd60K0/cakey3.png" />
