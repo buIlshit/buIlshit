@@ -7,7 +7,7 @@
 
 $${\color{red}ᥴᥲkᥱ . }$$$${\color{blue}һᥱ / sһᥱ}$$
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[r](https://rentry.co/masturb8)$${\color{red}ᥱᥒ𝗍rᥡ}$$
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[r](https://rentry.co/nikoIais)$${\color{red}ᥱᥒ𝗍rᥡ}$$
 
 <p align="center"> <p align="center"> <p align="center"> 
 <img width="150" src="https://64.media.tumblr.com/7bf8f07abf938d0054d62b72c6b0003c/30bf7b8c91358bfa-3d/s100x200/954e179169c59988786fe23b386212786ed2134b.pnj"
